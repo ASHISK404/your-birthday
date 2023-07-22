@@ -1,3 +1,3 @@
 # your-birthday
-for her\n
+for her
 嘿，找到这里了?
